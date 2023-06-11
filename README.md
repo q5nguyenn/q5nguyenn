@@ -2,7 +2,7 @@
 
 Life without __dreams__:sparkling_heart: is like a bird with a broken wing - it can't __fly__:hatched_chick:
 
-Let your __dreams__:sparkling_heart: be your __wings__:baby_chick:.
+Let your __dreams__:sparkling_heart: be your __wings__:baby_chick:
 
 <!--
 **q5nguyenn/q5nguyenn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
